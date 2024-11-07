@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 Currently part time owner and developer for a FiveM server called [Lethality Roleplay](https://discord.gg/lethalityroleplay).<br>
+🔭 Im the owner and one of the developers for one of Swedens biggest FiveM servers called [Lethality Roleplay](https://discord.gg/lethalityroleplay).<br>
 
 
 ## 🌐 Socials:
